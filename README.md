@@ -1,5 +1,5 @@
 # Nowe-
-Welcome
+Welcome again
 
 poprawka Karola
 edycja poprawki 
