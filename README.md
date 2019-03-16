@@ -2,3 +2,4 @@
 Welcome
 
 poprawka Karola
+edycja poprawki 
