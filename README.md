@@ -1,2 +1,4 @@
 # Nowe-
 Welcome
+
+poprawka Karola
